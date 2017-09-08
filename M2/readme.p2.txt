@@ -1,2 +1,2 @@
 Devon Bhavsar
-dbhavsar202@gmail.com
+dbhavsar6@gatech.edu
